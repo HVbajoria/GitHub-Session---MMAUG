@@ -1,3 +1,3 @@
-# Feedbacks :star: 💠
+# Feedbacks :star:
 
 - Got to learn something cool!
